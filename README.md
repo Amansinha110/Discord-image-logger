@@ -103,5 +103,3 @@ None at the moment!
 Liked the project? I know you did! Support me, **drop a star!** <br>
 
 Thank you for choosing my tools! 🙏
-
-zdehmyybi
